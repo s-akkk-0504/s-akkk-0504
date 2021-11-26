@@ -1,8 +1,9 @@
-- 👋 Hi, I’m @sakshi_chaudhari__05
+- 👋 Hi, I’m @Sakshi Dinkar Chaudhari
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...IT Engineering
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...Instagram - @sakshi_chaudhari_05  LinkedIn : linkedin.com/in/sakshichaudhari-aa414b20a 
+- 📫 How to reach me ...Instagram - @sakshi_chaudhari_05  
+- LinkedIn : linkedin.com/in/sakshichaudhari-aa414b20a 
 
 
 
